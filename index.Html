@@ -1,1 +1,0 @@
-# safollo-academy
